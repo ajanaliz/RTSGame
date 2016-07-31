@@ -6,7 +6,7 @@ i havent uploaded the audio and picture files
 btw the tab thing is something that was forced, so it had to be done this way
 
 ==============
-#Credits
+#Credit
 
 Ammar Gilani
 
